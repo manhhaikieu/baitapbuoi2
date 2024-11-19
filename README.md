@@ -1,5 +1,5 @@
 # 💫About Me :
-My name is Kiều Mạnh Hải, born in 2004.
+My name is Kieu Manh Hai, born in 2004.
 I currently live in Ho Chi Minh City, Vietnam.
 I am studying at HUTECH – Ho Chi Minh City University of Technology.
 
